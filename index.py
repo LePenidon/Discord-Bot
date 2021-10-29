@@ -1,2 +1,0 @@
-delatasdasd
-asdasd
